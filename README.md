@@ -5,7 +5,7 @@
 - 👀 Estou interessado em fazer uma republica dominicana no Egito antigo
 - 🌱 Atualmente estou aprendendo a fazer moonwalk do Michael jackson 
 - 💞️ procuro colaborar com a torcida do flamengo
-- 📫 como me achar: thiagommadruga@gmail.com
+- 📫 como me achar: thiago.madruga@escola.pr.gov.br
 
 <!---
 Narutoshippudem/Narutoshippudem is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
