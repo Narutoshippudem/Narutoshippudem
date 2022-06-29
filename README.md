@@ -1,7 +1,7 @@
 # sobre mim:
 
 
-- 👋 Oi,eu sou @Narutoshippudem
+- 👋 Oi,eu sou @thiago_darhtvader
 - 👀 Estou interessado em fazer uma republica dominicana no Egito antigo
 - 🌱 Atualmente estou aprendendo a fazer moonwalk do Michael jackson 
 - 💞️ procuro colaborar com a torcida do flamengo
