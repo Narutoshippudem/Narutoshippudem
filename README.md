@@ -3,7 +3,7 @@
 
 - 👋 Oi,eu sou thiago
 - 👀 Estou interessado em fazer uma republica dominicana no Egito antigo
-- 🌱 Atualmente estou aprendendo a fazer moonwalk do Michael jackson 
+- 🌱 Atualmente estou aprendendo a fazer moonwalk com Michael jackson 
 - 💞️ procuro colaborar com a torcida do flamengo
 - 📫 como me achar: em uma balada depois do jogo do flamengo thiago.madruga@escola.pr.gov.br
 
